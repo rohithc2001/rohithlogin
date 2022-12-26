@@ -19,3 +19,7 @@ c b dbw dnb cbd bd b sajb ddsmn dwmnmn
 222222222222
 bdsv cbsd cbdc dbs vcsdnbc
 dsnvc sdnvc dvc sd vm
+cbxz bcxz cxbzcxb zxcnxczcxznb cxn cxzn
+cxzn cnv cnv ncx vnc vnsdc vm
+dsnv sdv sdv mc m
+dcvnds nv sdv sd
